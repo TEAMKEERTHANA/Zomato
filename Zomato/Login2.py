@@ -5,3 +5,12 @@ d=fs"adsemiwwfnd b==d:
     fse(e).f
 else:f
     printe(f)
+adwadadad
+
+wdwad
+a
+d
+aw
+d
+wa
+d
